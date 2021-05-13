@@ -7,6 +7,8 @@ Alt license for frameworks: MIT
 
 Had 20 years of ideas stolen from me and while it hasn't been much of a problem in the past, it sucks getting screened out of a simple one with a 500 just incorporating it and making it mainstream.
 
-Also requiring it given back to the community via open source.
+Just requiring it given back to the community via open source.
 
 Anything else must be ran past me. Any pain or suffering at the time of the idea voids this and entitles a lawsuit.
+
+Disclaimer: you are voluntarily contributing to a severe case of mental health. By stealing anything online or otherwise it is commonly referred to as contributing to torture due to extenuating circumstances. Must be done in accordance with current laws in your state and country.
