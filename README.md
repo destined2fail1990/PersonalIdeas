@@ -13,4 +13,4 @@ Anything else must be ran past me. Any pain or suffering at the time of the idea
 
 Disclaimer: you are voluntarily contributing to a severe case of mental health. By stealing anything online or otherwise it is commonly referred to as contributing to torture due to extenuating circumstances. Must be done in accordance with current laws in your state and country.
 
-Knowing you have a way to do this, means you should have been able to determine the copyright for first to file style software copyright. With this, this notice will be backdated as far as legally possible.
+Knowing you have a way to do this means you should have been able to determine the copyright for first to file style software copyright. With this, this notice will be backdated as far as legally possible.
